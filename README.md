@@ -4,4 +4,5 @@
 - Ellainy Nayara
 - João Henrique
 - Luana Tainá
+- Maria Gabriely
 - Wescley Plínio
